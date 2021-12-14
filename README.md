@@ -1,2 +1,3 @@
 # Hello-world
 I am interested in knowledge, so i seek others who are as well. I cant think of a better way to quench my thirst for knowledge other than here.
+My sister passed recently and she said many odd things over the last year. One thing ive yet to figure out was when she said be more like akasha, the witch who controls everything even the scarecrow. She brought somethings to my attention i never would have noticed beforehand. I am 26 years of age, constantly fighting people who claim to be my friends, and loosing those closest to me. It may seem pitiful i turn to this as my release, but github also helped me oddly enough as it may seem so now i ask whats next?
